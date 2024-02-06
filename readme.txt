@@ -1,0 +1,1 @@
+This is Anne's personal blog. She is a student of Nanjing Normal University.
